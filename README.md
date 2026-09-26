@@ -35,4 +35,5 @@ Computer Engineering undergraduate with a **3.50 GPA** at Erciyes University, cu
 
 ### 📬 Connect With Me
 * **GitHub:** sacelikk
-* **Email:** [Senin E-posta Adresin]
+* **Email:**  sametcelcel098@gmail.com
+  
